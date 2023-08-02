@@ -1,3 +1,3 @@
 # Speeying
 
-A typing game/ whatever to created a fake FOMO among your friend showing off your insane typing speed casually dropping your narcissist's persona in midst
+A typing game/ whatever to create a fake FOMO among your friend by showing off your insane typing speed all the while casually dropping your narcissist's persona in the midst
